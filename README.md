@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CUGJ860707HSPTRS02
+CUGJ860707HSPTRS02
